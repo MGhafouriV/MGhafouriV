@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MGhafouriV
+- 👀 I’m interested in world and it's nature
+- 🌱 I’m currently learning math in high school 
+- 📫 How to reach me manighafouri1385@gmail.com
